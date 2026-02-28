@@ -1,1 +1,1 @@
-## :‼️Notenberechner werden aktualisiert‼️
+## ‼️Notenberechner werden aktualisiert‼️
